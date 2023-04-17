@@ -1,1 +1,0 @@
-# adrydn.github.io
